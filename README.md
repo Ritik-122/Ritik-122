@@ -1,4 +1,4 @@
-### Hi there 👋
+ Hi I am Ritik Sharma 👋
 
 <!--
 **Ritik-122/Ritik-122** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
