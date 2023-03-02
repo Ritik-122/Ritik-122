@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **bharadwajritik1@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1cN-sVlM9bA2prP9AjfM3qCGwkLgewHig/view?usp=share_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1dC7_nwh8_mIJq37TWh9LBBmZ_Ip8V4Ju/view?usp=share_link)
 
 - ⚡ Fun fact **I think I have a good sense of humour**
 
